@@ -13,4 +13,6 @@ Add whatever sauce or oil and toppings that you like.
 
 Bake at 200 degrees celcius (180 degrees celcius fan-assisted) for 14-15 minuits
 
-*if you prefer a thicker, Chicago-style crust, allow it to rise in the pan for 30 minutes before adding sauce/oil and toppings.
+*if you prefer a thicker, Chicago-style crust, allow it to rise in the pan for 30 minutes before adding sauce/oil and toppings. 
+
+enjoy.
